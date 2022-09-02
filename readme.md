@@ -20,4 +20,4 @@
 #### I dont own any of the vectors used in the website except my logo
 
 
-##### Made by Build It Better Team vihaan singla
+##### Made by Build It Better Team 
